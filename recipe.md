@@ -22,5 +22,3 @@ juice of 1 lemon
 150 g cooked chickpeas
 15g A small bunch of fresh coriander
 Optional: a couple of gluten-free pitta breads to serve
-
-.sfsa
